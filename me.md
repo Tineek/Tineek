@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Tineek
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning how to drink water.
+- 💞️ I’m looking to collaborate on Leon Lesjak
+- 📫 How to reach me: My discord is 'tineek#5830'
+- 
